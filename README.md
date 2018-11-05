@@ -1,2 +1,1 @@
-# safeguard-world-peace
-打开 
+# safeguard-world-peace.github.io
